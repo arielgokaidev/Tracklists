@@ -87,15 +87,15 @@
 84 Sash! - Ecuador (Klubbheads Remix)
 85 666 - Paradoxx & Sash! - It's My Life (NBG Remix)
 86 N-Trance - Electronic Pleasure (DJ Quicksilver Remix)
-87 Porn Kings - Amour
+87 Porn Kings - Amour (C'mon) (Radio Edit)
 88 Mr. President - Where Do I Belong (House Mix Long)
 89 Mighty Dub Kats - Magic Carpet Ride
 90 ID
-91 Porn Kings - Up To No Good
+91 Porn Kings - Up To No Good (Original Mix)
 92 Anti-Funky - Super Bass
 93 Baby Bitch - Rock
 94 Klubbheads - Release The Pressure (Extended Mix)
-95 Encore - Le Disc Jockey
+95 Encore - Le Disc Jockey (Beam & Yanou Mix)
 96 Tall Paul - Be There (Sentinal Mix)
 97 Disco Blue - Sun Days (Concepito Mix)
 98 Porn Kings - It's a Party (Extended mix)
