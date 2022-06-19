@@ -1,4 +1,4 @@
-# Techno Trance 100 Tracks
+# Techno Trance 65
 
 > Más conocido como el CD de los 70 tracks mezclados.
 
